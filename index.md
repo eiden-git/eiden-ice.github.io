@@ -15,9 +15,8 @@ Upon arriving back at the Wallace residence, Mia finally reveals her corny joke:
 In their last conversation, they agree not to tell Marcellus of the overdosing incident, both fearing what he might do to either of them. In this, they both "redeem" each other. 
 
 ## Besonderheiten
-
-- dargestellt durch Uma Thurman
-- weitere Filme: Kill Bill
-- Fox Force Five
-- Frau von Marsellus Wallace
+* dargestellt durch Uma Thurman
+* weitere Filme: Kill Bill
+* Fox Force Five
+* Frau von Marsellus Wallace
 
