@@ -17,8 +17,8 @@ In their last conversation, they agree not to tell Marcellus of the overdosing i
 
 ## Besonderheiten
 
-+ dargestellt durch Uma Thurman
-+ weitere Filme: Kill Bill
-+ Fox Force Five
-+ Frau von Masellus Wallace
+- dargestellt durch Uma Thurman
+- weitere Filme: Kill Bill
+- Fox Force Five
+- Frau von Masellus Wallace
 
