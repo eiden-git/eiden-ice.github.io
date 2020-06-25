@@ -24,3 +24,6 @@ Here joke was:
 > So there's Papa Tomato, Momma Tomato and Baby Tomato walking along the street. 
 > Baby Tomato starts lagging behind, and Papa Tomato starts getting really angry. 
 > So, he turns around and squishes Baby Tomato and says, 'Ketchup.' (Catch Up)
+
+<img src="https://en.wikipedia.org/wiki/Mia_Wallace#/media/File:Mia_Wallace.jpeg"/>
+
