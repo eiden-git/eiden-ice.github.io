@@ -1,4 +1,4 @@
-# Mia Farrow - Pulp Fiction
+# Mia Farrow Pulp Fiction
 
 ![image info](./Mia_wallace.jpg)
 Mia Wallace is the new wife of Marsellus Wallace. She is a rather mysterious character, and very little is revealed about about her. She likes to wear elegant, expensive clothing, smokes the fictious brand of 'Red Apple' cigaretes, enjoys music, and is addicted to cocaine.  She is a world traveller, and goes to Amsterdam annually. She likes her burgers rare, and her $5 shakes vanilla flavored. She enjoys novelty, using playful epithets and nicknames, but she hates mindless chit chat. At Marsellus' request, Vincent Vega shows his wife Mia a good time while Marsellus is in Florida. He shows up at Mia's house and while waiting for her to get ready, she plays a classic song on the sound system. The song was the hit "Son of a Preacher Man", by Dusty Springfield. They head to the *Jack Rabbit Slim*'s, a slick 1950s-themed restaurant with lookalikes of the decade's top pop culture icons as staff, an option for patrons to eat at a booth or a classic car refitted as a booth, and the famous "Five-Dollar Milkshake".
@@ -14,3 +14,11 @@ Mia wakes up with a howl and, when asked to say something, says "something". Jod
 Upon arriving back at the Wallace residence, Mia finally reveals her corny joke: "So there's Papa Tomato, Momma Tomato and Baby Tomato walking along the street. Baby Tomato starts lagging behind, and Papa Tomato starts getting really angry. So, he turns around and squishes Baby Tomato and says, 'Ketchup.' (Catch Up) "
 
 In their last conversation, they agree not to tell Marcellus of the overdosing incident, both fearing what he might do to either of them. In this, they both "redeem" each other. 
+
+## Besonderheiten
+
+- dargestellt durch Uma Thurman
+- weitere Filme: Kill Bill
+- Fox Force Five
+- Frau von Masellus Wallace
+
