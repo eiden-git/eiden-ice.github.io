@@ -20,3 +20,7 @@ In their last conversation, they agree not to tell Marcellus of the overdosing i
 * Fox Force Five
 * Frau von Marsellus Wallace
 
+Here joke was:
+> So there's Papa Tomato, Momma Tomato and Baby Tomato walking along the street. 
+> Baby Tomato starts lagging behind, and Papa Tomato starts getting really angry. 
+> So, he turns around and squishes Baby Tomato and says, 'Ketchup.' (Catch Up)
